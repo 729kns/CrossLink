@@ -5,3 +5,5 @@ However, currently there's only 4 songs that I have mapped.
 And the development is still ongoing.
 
 check out this youtube video if you are interest. https://youtu.be/aYsZ6wtslFA
+
+Also please forgive me if my japanese may be a little weird, as I'm not a native speaker.
